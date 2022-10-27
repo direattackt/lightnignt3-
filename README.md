@@ -1,21 +1,31 @@
 # lightnignt3-
 
 glass
-glass
-glass 
+glass co en     inti 8348n oiasd ionas diog ajdsgn aosidg aoidgn o 
+glass xo en.    iotne iao sdgljkal;sdgasdnga iosdg oia ioe oi 
 
-glass
-glass
+
+glass t ien aiodg ialskndg aiog ioa diog i
+glass  
+
+
+hi glass 89238428348928394823ui4n23 4
+glass etohi aisd ghiakd oci dioas 
+glass tioe anosgidojalskdgn aiod gio io 
+glass iote ia soidgjaknsd gioag dion e 
 gla encio laksn gioda sdn asdo iand io 
 
 etn
 etn
 etn 3899iu o nn
 ne t
-ne t
-ent 83n c aiosnd gioa soid o io 
-gas ioet io jkncioasn dg asiod o.  fo r389 n iaos dngoids ajd
+ne t.     ih man.     ih man.       ih.  man 3u848384289842834238u84283i.    ih man 
+ent 83n c aiosnd gioa soid o io  ih.   ih.   oas 8348238428348283482834.     ih man  
+gas ioet io jkncioasn dg asiod o.  foo yoght4383 hi  r389 n iaos dngoids ajd
 n cih eoak gioasd ion io 
+
+gate
+hi  bell 23894in asoig iasdgn aiodg oia i 
 
 th eioa hodgi al ;sdgalskdjmgaos oiasdg 
 th eoic oaikjsd goasd iga nsdig 
